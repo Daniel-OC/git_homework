@@ -4,3 +4,6 @@ Schedule Schedule Schedule!! Time is going to be incredibly tight for the next 8
 Scheduling exercise! It will be essential that I don't feel like crap while doing this incredibly grueling challenge. Working out and being present in my body will help with that 👍
 
 Doing an in-class journal, as well as a "reflections" journal, where I reflect on what I learned that day, thereby doubling the number of times I think through something, and using spaced repitition to my advantage.
+
+*Borat voice* My wife!
+*Not borat voice* No, actually though, my wife is the juice. Consider yer boi V grateful for her. She's the funnest and funniest and we work hard on this here relationship!!😤😤
