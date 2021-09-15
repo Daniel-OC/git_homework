@@ -7,3 +7,7 @@ Doing an in-class journal, as well as a "reflections" journal, where I reflect o
 
 *Borat voice* My wife!
 *Not borat voice* No, actually though, my wife is the juice. Consider yer boi V grateful for her. She's the funnest and funniest and we work hard on this here relationship!!😤😤
+
+
+Everything below here is the Session 3 stuff:
+-Boom thoughts!
